@@ -36,10 +36,6 @@
 </div>
 
 <div align="center">
-<img src="https://cdn.discordapp.com/attachments/1050251291693170689/1493500211362795550/Heartrate_Monitor_Divider_Gif.webp?ex=69df31f6&is=69dde076&hm=3b09359906710203272a1bd50393447f1da202dc9275da22d161d403da06f6f6"
-</div>
-
-
 I love my beautiful handsome pink haired bf ♡⸜(ˆᗜˆ˵ )⸝♡ [ https://github.com/LordStarscreamm ]
 </div>
 ᅠᅠᅠᅠᅠᅠᅠᅠᅠ
