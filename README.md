@@ -1,16 +1,53 @@
-## Hi there 👋
+<img width="2048" height="192" alt="Polkadot Lace Divider" src="https://github.com/user-attachments/assets/6f6c0f37-4889-4002-9cb2-7e19ef8e333b" />
 
-<!--
-**Citrusjime/Citrusjime** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<div align="center">
+ʜᴇʟʟᴏ !!
+</div>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+ᴍᴇᴅ :: ʜᴀᴊɪᴍᴇ :: ɪʙᴜᴋɪ :: ᴅᴏᴄ
+</div>
+
+<div align="center">
+<img src="https://static.wikia.nocookie.net/danganronpa/images/4/49/Danganronpa_2_Hajime_Hinata_Pixel_Sprites_%2802%29.gif/revision/latest?cb=20170816150123">
+<img src="https://static.wikia.nocookie.net/danganronpa/images/3/3d/Danganronpa_2_Island_Mode_Ibuki_Mioda_Pixel_Icon_%283%29.gif/revision/latest?cb=20170828151426">
+</div>
+
+<div align="center">
+.:: ᴄ + ʜ : ᴡ2ɪ ::.
+</div>
+
+<div align="center">
+ᴜɴʟᴇss sᴛᴀᴛᴇᴅ ᴏᴛʜᴇʀᴡɪsᴇ !!
+</div>
+
+<div align="center">
+ᜊ(꒪ˊ꒳ˋ꒪)ᜊ
+</div>
+ᅠᅠᅠᅠᅠᅠᅠᅠᅠ
+ᅠᅠᅠᅠᅠᅠᅠᅠᅠ
+ᅠᅠᅠᅠᅠᅠᅠᅠᅠ
+ᅠᅠᅠᅠᅠᅠᅠᅠᅠ
+
+
+<div align="center">
+<img width="1200" height="675" alt="Hajime Hinata Banner" src="https://github.com/user-attachments/assets/06add6d9-71f5-4e9e-b17a-f9924e7b7279" />
+</div>
+
+<div align="center">
+<img src="https://cdn.discordapp.com/attachments/1050251291693170689/1493500211362795550/Heartrate_Monitor_Divider_Gif.webp?ex=69df31f6&is=69dde076&hm=3b09359906710203272a1bd50393447f1da202dc9275da22d161d403da06f6f6"
+</div>
+
+<div align="center">
+I love my beautiful handsome pink haired bf ♡⸜(ˆᗜˆ˵ )⸝♡ [ https://github.com/LordStarscreamm ]
+</div>
+ᅠᅠᅠᅠᅠᅠᅠᅠᅠ
+ᅠᅠᅠᅠᅠᅠᅠᅠᅠ
+
+
+<div align="center">
+<img src="https://static.wikia.nocookie.net/danganronpa/images/e/ee/Danganronpa_2_Island_Mode_Mikan_Tsumiki_Pixel_Icon_%283%29.gif/revision/latest?cb=20170817093245">
+</div>
+ᅠᅠᅠᅠᅠᅠᅠᅠᅠ
+<img width="2048" height="192" alt="Polkadot Lace Divider" src="https://github.com/user-attachments/assets/6f6c0f37-4889-4002-9cb2-7e19ef8e333b" />
